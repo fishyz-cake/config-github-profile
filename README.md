@@ -7,3 +7,4 @@
 
 <p align="center"> i might follow back idk （；￣ェ￣）</p>
 <p align="center"> i also hope we get to be friends ilovee meeting new ppl!! ╰(*´︶`*)╯ </p>
+<p align="center"> i dont have any dni....,, iguessss?? just not 12 or lowerrrr..... (≧∀≦)</p>
